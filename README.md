@@ -4,5 +4,5 @@ I live in Incheon
 My favorite food is hamburger  
 I'm Kookmin university sophomore  
 Major is financing account  
-I want to be a accountant
+I want to be a accountant  
 Here We GO!
